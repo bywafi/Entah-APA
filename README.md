@@ -1,4 +1,6 @@
 # Entah-APA
 untuk apa
 
-disini lahirnya sebuah cinta.. yang murni abadi sejati..
+disini lahirnya sebuah cinta.. yang murni abadi sejati.. 
+andai.. ku dibuang tak diterima... andai u disingkirkan... kemana harus keu bawakan... kemana harus ku semaikan...
+cinta ini....
